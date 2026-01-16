@@ -1,7 +1,7 @@
 # read me ୨୧
 ![Alt text](https://media3.giphy.com/media/v1.Y2lkPTc5MGI3NjExMDAwN2xqMDN4NzhmMjIzMmZvOGZzcDR5NWdsamR6bml0aDNveTg5biZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/mTfNtiitbGjqE/giphy.gif) <br/>
 ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . . 　⁺ 　 . ✦ . 　⁺ 　 .  <br/>
-𐔌 dante ノ any pronouns ノ adult ノ taken ꒱ <br/>
+𐔌 dante ノ any pronouns ノ adult ꒱ <br/>
 ♡ hello, i'm dante! i am a furry artist who plays video games every now and then. <br/>
 🟢 = online, active ノ🌙 = offtab, afk ノ 🔴 = offline, dni <br/>
 ⋆˚꩜｡ please interact! cuddles + hugs encouraged! ⋆‧°𓏲ּ𝄢 <br/>
